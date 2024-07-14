@@ -12,6 +12,6 @@ I began my career as a graphic designer, and since then I've dabbled in all sort
 You can find me on Social Media @subhanbakh 
 - Twitter [@subhanbakh](https://x.com/subhanbakh)
 - Instagram [@subhanbakh](https://www.instagram.com/subhanbakh/)
-- Dribbble [@subhanbakh](https://dribbble.com/subhanbakh
+- Dribbble [@subhanbakh](https://dribbble.com/subhanbakh)
 - My website [subhanbakh.com](https://www.subhanbakh.com/)
 
