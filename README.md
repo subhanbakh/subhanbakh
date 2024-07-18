@@ -15,4 +15,5 @@ You can find me on Social Media @subhanbakh
 - Instagram [@subhanbakh](https://www.instagram.com/subhanbakh/)
 - Dribbble [@subhanbakh](https://dribbble.com/subhanbakh)
 - My website [subhanbakh.com](https://www.subhanbakh.com/)
+- Email: hello@subhanbakh.com
 
