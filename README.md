@@ -1,5 +1,5 @@
 ## Hi there 👋
-I'm Subhan Bakh, a freelance design engineer based in Azerbaijan.
+I'm Subhan Bakh, a freelance design engineer from Azerbaijan, currently based in Montenegro.
 
 Some of the tech I love working with:
 - HTML, CSS, JavaScript, TypeScript
